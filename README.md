@@ -14,4 +14,4 @@ tabela-
 | ------------- | -------------------- | -------------------- | 
 |  <h1>**VENCEDORA**</h1> | <h1>**COXINHA**</h1>  | **MAIOR DE TODAS, PERFEITA, MARAVILHOSA, MELHOR OPÇÃO, SE TIVER COM REQUEIJÃO ENTÃO, PUTS TO ATÉ COM FOME AGORA ESCREVENDO ISSO.** |
 
-*escrevendo pra alinhar a imagem* ![60736797_1562498430550440_3836368623916548096_n](https://github.com/user-attachments/assets/aa457e89-20f5-41f1-a4f6-0fddff9562d7) 
+*escrevendo aqui pra alinhar a imagem kk*![60736797_1562498430550440_3836368623916548096_n](https://github.com/user-attachments/assets/aa457e89-20f5-41f1-a4f6-0fddff9562d7) 
